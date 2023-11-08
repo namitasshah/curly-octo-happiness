@@ -1,4 +1,4 @@
 # curly-octo-happiness
 Hello World!
-Omg hey girl!
+Omg hey dude!
 How are you today?!
